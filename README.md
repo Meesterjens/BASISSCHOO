@@ -1,7 +1,7 @@
 ### Mijn social media
 Als je [Hier](https://www.instagram.com/meesterjens/?hl=nl) klikt vind je mijn Instagram account
 en [Hier](https://www.youtube.com/channel/UCKPzBEjeoImta8kHrjBijZA?view_as=subscriber) vind je mijn YouTube kanaal.                                                                                                                                                                  
-![](ik.jpg) ![]
+![](ik.jpg) ![](j.jpg)
 
 
 ### Wat vind ik belangrijk als leraar?
