@@ -1,6 +1,7 @@
 ### Mijn social media
 Als je [Hier](https://www.instagram.com/meesterjens/?hl=nl) klikt vind je mijn Instagram account
-en [Hier](https://www.youtube.com/channel/UCKPzBEjeoImta8kHrjBijZA?view_as=subscriber) vind je mijn YouTube kanaal.                     
+en [Hier](https://www.youtube.com/channel/UCKPzBEjeoImta8kHrjBijZA?view_as=subscriber) vind je mijn YouTube kanaal. 
+
 
 ### Jens de Wit
 Als leraar vind ik het belangrijk om een band met de kinderen in de klas op te bouwen. Sociaal-emotionele doelen staan bij mij op nummer één.
