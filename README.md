@@ -1,12 +1,13 @@
 ### Mijn social media
 Als je [Hier](https://www.instagram.com/meesterjens/?hl=nl) klikt vind je mijn Instagram account
-en [Hier](https://www.youtube.com/channel/UCKPzBEjeoImta8kHrjBijZA?view_as=subscriber) vind je mijn YouTube kanaal.  
+en [Hier](https://www.youtube.com/channel/UCKPzBEjeoImta8kHrjBijZA?view_as=subscriber) vind je mijn YouTube kanaal.                     
 
-### Wie ben ik?
-Mijn naam is Jens de Wit.	
-Ik ben geboren in het jaar 2000.	
-Mijn hobby's zijn voetbal, motorcross en fitness.	
-Daarnaast vind ik de mens en daarmee psychologische- en motivatietheorieën heel interessant.
+### Jens de Wit
+Als leraar vind ik het belangrijk om een band met de kinderen in de klas op te bouwen. Sociaal-emotionele doelen staan bij mij op nummer één.
+Door elkaars gedrag te begrijpen en hier samen mee om te leren gaan, kunnen we zorgen voor een zo positief mogelijk leer- en leefklimaat in de klas. Waar liggen de kwaliteiten van de kinderen en waar willen de kinderen zelf ontwikkeling in doormaken? Door op zo veel mogelijk verschillende manieren de intrinsieke motivatie van de kinderen te triggeren zullen de resultaten verbeteren. 
+
+
+dat alle kinderen met plezier naar school komen.
 
 
 
