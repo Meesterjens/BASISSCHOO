@@ -1,6 +1,7 @@
-## Welcome to GitHub Pages
+## Jens de Wit
 
-You can use the [editor on GitHub](https://github.com/Meesterjens/Meesterjens/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+[Hier](https://www.instagram.com/meesterjens/?hl=nl) zie je mijn Instagram account.  
+[Hier](https://www.youtube.com/channel/UCKPzBEjeoImta8kHrjBijZA?view_as=subscriber) zie je mijn YouTube kanaal.  
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
