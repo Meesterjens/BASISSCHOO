@@ -4,8 +4,11 @@ en [Hier](https://www.youtube.com/channel/UCKPzBEjeoImta8kHrjBijZA?view_as=subsc
 
 ### Wie ben ik?
 Mijn naam is Jens de Wit.
+
 Ik ben geboren in het jaar 2000.
+
 Mijn hobby's zijn voetbal, motorcross en fitness.
+
 Daarnaast vind ik de mens en daarmee psychologische- en motivatietheorieën heel interessant.
 
 
