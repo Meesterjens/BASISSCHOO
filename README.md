@@ -3,8 +3,12 @@ Als je [Hier](https://www.instagram.com/meesterjens/?hl=nl) klikt vind je mijn I
 en [Hier](https://www.youtube.com/channel/UCKPzBEjeoImta8kHrjBijZA?view_as=subscriber) vind je mijn YouTube kanaal.  
 
 ### Wie ben ik?
+Mijn naam is Jens de Wit.
+Ik ben geboren in het jaar 2000.
+Mijn hobby's zijn voetbal, motorcross en fitness.
+Daarnaast vind ik de mens en daarmee psychologische- en motivatietheorieën heel interessant.
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+
 
 ```markdown
 Syntax highlighted code block
