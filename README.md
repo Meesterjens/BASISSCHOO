@@ -1,6 +1,6 @@
 ### Mijn social media
 Als je [Hier](https://www.instagram.com/meesterjens/?hl=nl) klikt vind je mijn Instagram account.
-En [Hier](https://www.youtube.com/channel/UCKPzBEjeoImta8kHrjBijZA?view_as=subscriber) vind je mijn YouTube kanaal.  
+en [Hier](https://www.youtube.com/channel/UCKPzBEjeoImta8kHrjBijZA?view_as=subscriber) vind je mijn YouTube kanaal.  
 
 ### Wie ben ik?
 
